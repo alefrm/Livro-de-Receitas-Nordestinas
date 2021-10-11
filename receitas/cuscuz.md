@@ -16,3 +16,8 @@
 4. Desligue o fogo e, com cuidado para não se queimar ou virar o cesto, puxe a haste central para desenformar cuscuz. Transfira para uma tigela e desfaça o cuscuz em pedaços com um garfo.
 5. Numa tigela pequena misture a manteiga com ¼ de xícara (chá) da água fervente da cuscuzeira. Mexa com uma colher até derreter pelo menos a metade da manteiga – ela termina de derreter com o calor do cuscuz.
 6. Regue a água com manteiga sobre o cuscuz e misture com o garfo – a água com manteiga deixa o cuscuz mais úmido e saboroso. Sirva a seguir.
+
+[Site original da receita](https://www.panelinha.com.br/receita/Cuscuz-nordestino)
+
+
+
